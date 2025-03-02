@@ -3,6 +3,7 @@
 Miri is how everyone call me! 
 
 🌱 Working to save the world and shift energy market into renewables! 
+
 🛋️ My favorite fourniture is «sofas»
 
 Currently working on [GitLab](https://gitlab.com/miranda.lopez)
