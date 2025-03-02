@@ -8,7 +8,7 @@ Miri is how everyone call me! Nice to see you here. Little facts about me are:
 
 🛋️ My favorite fourniture is «sofas»
 
-👉 Currently working on [GitLab](https://gitlab.com/miranda.lopez)
+👉 Currently working on [gitlab/mirinnes](https://gitlab.com/mirinnes)
 
  
 <!--
