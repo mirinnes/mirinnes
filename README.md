@@ -2,7 +2,7 @@
 
 Miri is how everyone call me! Nice to see you here. Little facts about me are:
 
-🐈‍⬛ Cat lover (yea I try to be original)
+🐈‍⬛ Cat lover (yea I try hard to be original)
 
 🌱 Working to save the world and shift energy market into renewables! 
 
