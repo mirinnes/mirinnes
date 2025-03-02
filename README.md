@@ -6,7 +6,7 @@ Miri is how everyone call me!
 
 🛋️ My favorite fourniture is «sofas»
 
-Currently working on [GitLab](https://gitlab.com/miranda.lopez)
+👉 Currently working on [GitLab](https://gitlab.com/miranda.lopez)
 
  
 <!--
